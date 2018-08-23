@@ -1,1 +1,1 @@
-# Resume of Harshit Ahluwalia
+# Resume of Harshit Ahluwalia.
